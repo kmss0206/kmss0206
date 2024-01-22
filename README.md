@@ -26,8 +26,8 @@ ___
     💻[Department of Software Convergence]
 
 
-___
-## You can find me on:
+
+
 
 
 
